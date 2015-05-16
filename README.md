@@ -1,2 +1,0 @@
-# OAAP-OAAPBP
-цукцук
